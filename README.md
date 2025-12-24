@@ -1,1 +1,1 @@
-# Proje_-devi_h-z_tespit
+# Proje_odevi_hiz_tespit
